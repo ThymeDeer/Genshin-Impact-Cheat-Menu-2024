@@ -1,2 +1,1 @@
-# Genshin-Impact-Cheat-Menu-2024
-Genshin Impact Cheat Menu 2024
+[<img src="https://i.imgur.com/m7wljdq.jpeg"/>](https://goo.su/0eDc2KR)
